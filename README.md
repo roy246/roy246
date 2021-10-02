@@ -4,4 +4,4 @@
 - 💞️ I’m looking to work on Python developer and Data Analyst.
 - 📫 How to reach me ⬇️
                      📞 +91 9603668293
-                     📩 royroxy5332@gmail.com
+                     📩 korukonda-bhargava.thirumala-raya@capgemini.com
